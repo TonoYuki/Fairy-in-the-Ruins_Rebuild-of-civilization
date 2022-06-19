@@ -19,3 +19,4 @@
 ###### *Twitter: @IvanVla56958425*
 ###### *Facebook: Vladimir Ivan*
 ###### *E-mail: i1071979462@gmail.com*
+###### *作者本人不接受任何形式的捐助，以本作作者名义或委托公开支付方式的均为假冒*
