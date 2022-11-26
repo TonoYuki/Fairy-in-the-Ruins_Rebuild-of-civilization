@@ -21,3 +21,10 @@
 ###### *Facebook: Vladimir Ivan*
 ###### *E-mail: i1071979462@gmail.com*
 ###### *作者本人不接受任何形式的捐助，以本作作者名义或委托公开支付方式的均为假冒*
+
+# 发行版
+## 废土中的精灵～文明的再造.PDF （简体中文版）（2022年11月26日 11点33分 农历冬月初三发布）
+##### 上册：https://mega.nz/file/DCI1QYJR#mXxrYG9y0cQJoyscSeELou4zDTp0ktuJ44NPfkoovrg
+###### *MD5==e6f7b818964c165bbd6e1e72bfdb6af5*
+##### 下册：https://mega.nz/file/HPwUlQJa#b1EF7OidKJK4AOP4G-4tTEVvrs15zjB_H1aUW_n8owU
+###### *MD5==035b790a40182443443dc3c2cd9bcd39*
