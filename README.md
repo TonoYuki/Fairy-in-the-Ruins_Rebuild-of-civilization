@@ -27,13 +27,13 @@
 ### 简体中文版（2022年11月26日 11点33分 农历冬月初三发布）
 ##### 上册：https://mega.nz/file/2HBVgATR#m1vrxAwH_7ozZzNiXLHfaZ-Uq_eD-XEgL-yCajc5ZpE
 ###### *MD5==303a4907865d3132fbb29631b4ee8663*
-##### 下册：https://mega.nz/file/CbYASbyA#2zByOcncK18VQZs6F4WB-sobYsZoo-4pNJoqKJxP_5U
-###### *MD5==437306e2c202738c591a9aeb39b312c1*
+##### 下册：https://mega.nz/file/DKB2VIqL#u8nASfZga6JdFd0aUiQzd_H-UaGFrzgwqt1hA_LZ-pA
+###### *MD5==e917f8ccd4dec03a602840c77c5c944f*
 ## 废土中的精灵～文明的再造.EPUB (适合MacOS X、iOS、Android等设备以及阅读器)
 ### 简体中文版（2022年12月17日 13点12分 农历冬月廿四发布）
-##### https://www.mediafire.com/file/uk85mqjvad2q7j4/Fairy_in_the_Ruins_CHS.epub/file
-###### *MD5==5aaf95cb20b8fb3c66d31dc2a88440a0*
+##### https://www.mediafire.com/file/a7mgzpfogtpeh67/Fairy_in_the_Ruins_CHS.epub/file
+###### *MD5==5ed6bc2adc49e59ade1ba77b0a6157ac*
 ## 废土中的精灵～文明的再造.CHM (适合Windows 95及以上版本)
 ### 简体中文版（2022年12月17日 21点58分 农历冬月廿四发布）
-##### https://www.mediafire.com/file/e5o6lvbwryccelk/Fairy_in_the_Ruins_CHS.chm/file
-###### *MD5==472431b7f272698a1b0005b2a4978fba*
+##### https://www.mediafire.com/file/uiz470tkrgfqryf/Fairy_in_the_Ruins_CHS.chm/file
+###### *MD5==0d6548a23d3e16375f0188b77c3f47bc*
